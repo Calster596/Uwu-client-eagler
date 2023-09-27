@@ -1,0 +1,2 @@
+# Uwu-client-eagler
+I AM NOT RESPONSIBLE IF YOU GET BANNED
